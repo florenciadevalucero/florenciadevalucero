@@ -1,4 +1,4 @@
-## Hi!👋 My name is Florencia, 25 years, I'm passionate about technology! 
+## Hi!👋 My name is Florencia, 27 years, I'm passionate about technology! 
 
 - 🌱 I am currently studying to be a software development technician.
 - 🤔 I need new opportunities to grow professionally.
